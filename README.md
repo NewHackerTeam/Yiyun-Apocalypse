@@ -8,3 +8,5 @@
 
 版权所有 © E1245AM、SDINI、PKQYPKJ 保留所有权利。
 大便所有 (Shit) 马逸云 保留所有排泄物。
+
+![Poster](https://raw.githubusercontent.com/NewHackerTeam/Yiyun-Apocalypse/refs/heads/shit/poster.jpg "Poster")
